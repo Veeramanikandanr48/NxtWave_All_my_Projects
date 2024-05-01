@@ -1,1 +1,0 @@
-# Interview-Mock-Test-1D

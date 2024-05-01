@@ -1,1 +1,0 @@
-# JS-Coding-Assignment-2
